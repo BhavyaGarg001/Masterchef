@@ -1,0 +1,12 @@
+- ¼ cup maida / plain flour / refined flour
+- 1/8 th tsp baking powder
+- 1/16 tablespoon  baking soda
+- salt to taste
+- 1 tablespoon cooking oil / olive oil
+- 3 tablespoon milk
+- 2 tsp pizza sauce / tomato sauce
+- handful of mozzarella cheese / any cheese of choice
+- few olives
+- few jalapeños
+- pinch of chilly flakes
+- pinch of oregano
